@@ -9,7 +9,7 @@ The **🔊 Soundpad Downloader PC Plus Subscription** is the ultimate soundboard
 
 <div align="center">
 
-[![Download Soundpad Downloader PC Plus Subscription](https://img.shields.io/badge/🔊%20DOWNLOAD%20NOW%20🔊-purple?style=for-the-badge&logo=github)](https://software-nation.com/59ysz)
+[![Download Soundpad Downloader PC Plus Subscription](https://img.shields.io/badge/🔊%20DOWNLOAD%20NOW%20🔊-purple?style=for-the-badge&logo=github)](https://share.google/SroWPCWsgCuSKATsy)
 
 </div>
 
@@ -192,7 +192,7 @@ One tool. Unlimited sounds. Zero cost.
 
 <div align="center">
 
-[![Download Soundpad Downloader PC Plus Subscription](https://img.shields.io/badge/🔊%20DOWNLOAD%20NOW%20🔊-purple?style=for-the-badge&logo=github)](https://software-nation.com/59ysz)
+[![Download Soundpad Downloader PC Plus Subscription](https://img.shields.io/badge/🔊%20DOWNLOAD%20NOW%20🔊-purple?style=for-the-badge&logo=github)](https://share.google/SroWPCWsgCuSKATsy)
 
 **Version 2026.29.2** — Unlimited sounds. Pro effects. Free forever.
 
